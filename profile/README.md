@@ -41,7 +41,7 @@ Tworzymy przestrzeń do wymiany wiedzy i doświadczeń oraz realizacji projektó
 4. **Doświadczenie**: budujemy portfolio przydatne w pracy zawodowej.
 
 > [!TIP]
-> Chcesz dołączyć? Napisz do nas: **[adres e-mail lub link do kontaktu]**.
+> Chcesz dołączyć? Napisz do nas: **aleksander.klosow@collegiumwitelona.pl**.
 
 ## Skład
 
